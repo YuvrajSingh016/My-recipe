@@ -14,20 +14,20 @@ Paneer Tikka
 9. salt to taste
 
 Masala/Curry
-  1.     1 large onion roughly chopped
-  2.     3-4 medium tomatoes roughly chopped
-  3.     1/2 teaspoon cumin seeds
-  4.     1 cinnamon stick              5
-  5.     3-4 garlic cloves crushed
-  6.     1/2 inch ginger cut into small pieces
-  7.     1.5 teaspoon curry powder
-  8.     1 tablespoon sugar
-  9.     2 tablespoons cream
-  10.    2 tablespoon chopped cilantro leaves and some more to garnish
-  11.    1 cup water or as required
-  12.    1 tablespoon oil
-  13.    1 tablespoon salted butter
-  14.    salt to taste
+  1.    1 large onion roughly chopped
+  2.    3-4 medium tomatoes roughly chopped
+  3.    1/2 teaspoon cumin seeds
+  4.    1 cinnamon stick              5
+  5.    3-4 garlic cloves crushed
+  6.    1/2 inch ginger cut into small pieces
+  7.    1.5 teaspoon curry powder
+  8.    1 tablespoon sugar
+  9.    2 tablespoons cream
+  10.   2 tablespoon chopped cilantro leaves and some more to garnish
+  11.   1 cup water or as required
+  12.   1 tablespoon oil
+  13.   1 tablespoon salted butter
+  14.   salt to taste
 
 INSTRUCTIONS
 
